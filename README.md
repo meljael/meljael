@@ -1,4 +1,4 @@
-###   Saldações, me chamo <strong> Meljael</strong>🤝
+###   Saudações, me chamo <strong> Meljael</strong>🤝
 [![LinkedIn](https://img.shields.io/badge/LinkedIn-0077B5?style=for-the-badge&logo=linkedin&logoColor=white/)](https://www.linkedin.com/in/meljael-daniel-42032a220/ )
 [![instagram](https://img.shields.io/badge/Instagram-E4405F?style=for-the-badge&logo=instagram&logoColor=white/)](https://instagram.com/meljael_daniel/)
 [![twitter](https://img.shields.io/badge/Twitter-1DA1F2?style=for-the-badge&logo=twitter&logoColor=white/)](https://twiter.com/Meljael1/)
